@@ -1,0 +1,5 @@
+- Hey, I’m @NotANothing
+- I'm from Czech Republic
+- I'm interested in network things
+- I like Anime and Tanks
+- 
